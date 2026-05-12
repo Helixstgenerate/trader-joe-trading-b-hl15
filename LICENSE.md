@@ -1,4 +1,4 @@
-# 
+# quantitative trader joe trading bot Plugin | token-swapping + price-impact-analysis offers the most advanced trader joe trading bot, with token-swapping and price-impact-analysis.
 
 
 
